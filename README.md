@@ -27,7 +27,7 @@
   - AI for social good  
 
 - 📫 Reach me at:  
-  [📧 harshagarwal244@@gmail.com](mailto:harshagarwal244@gmail.com)  
+  [📧 harshagarwal244@gmail.com](mailto:harshagarwal244@gmail.com)  
   [🔗 LinkedIn](www.linkedin.com/in/harsh-shah-85a9a322a)  
 
 
